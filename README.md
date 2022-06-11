@@ -1,7 +1,7 @@
 <a href="https://upload.cc/i1/2022/06/11/yALP6S.png"><img src="https://upload.cc/i1/2022/06/11/yALP6S.png" width="300" height="280"></a>
-林靜誼 Ching-Yi Lin
-活力• 堅持 •開朗
-2001/10/26 • New Taipei city
+- 林靜誼 Ching-Yi Lin
+- 活力• 堅持 •開朗
+- 2001/10/26 • New Taipei city
 # 語言學習
 - 中文 精通
 - 客家 普通
